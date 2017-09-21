@@ -1,0 +1,2 @@
+# Amazeriffic
+wery easy site
